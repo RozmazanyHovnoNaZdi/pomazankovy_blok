@@ -1,0 +1,1 @@
+# pomazankovy blok
